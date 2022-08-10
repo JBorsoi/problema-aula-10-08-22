@@ -1,3 +1,3 @@
 # problema-aula-10-08-22
-passarinho preto
-ave voadora
+passarinho louco
+das ideia
